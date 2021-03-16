@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bgbg204
+- 👀 I’m interested in osu
+- 🌱 I’m currently learning java/programing, osu skining, streaming
+- 📫 How to reach me discord bgbg204#0809
